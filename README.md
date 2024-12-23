@@ -6,4 +6,4 @@ My name is Mohammad Javad; A teenager with a PC like a potato. I use Parch linux
 I don't have much activity, but I have some basic projects. I wish they make you joyful.
 Stay in touch:
 
-[My Telegram](https://t.me/MrJavadGG/), [My email](mrjavadgg@gmail.com), [My X/Twitter](https://Soon/)
+[My Telegram](https://t.me/MrJavadGG/), [My email](mrjavadgg@gmail.com)
